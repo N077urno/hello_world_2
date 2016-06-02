@@ -1,3 +1,12 @@
 # hello_world_2
-outro repositório para teste
+lakdgapirutg
+alkjhgih
+açklsrghsdrog
+
 trabalhando com git - github
+aslegag
+açsdkfhaçsodgh
+çalsekjgasoigh
+adlgkjapoi
+a;sdlkghasçrodghi
+a;lkasdkh
